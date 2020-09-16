@@ -2,6 +2,7 @@
 
 Created by LeonMrBonnie
 
+[:heart: Support me by becoming a Patron](https://www.patreon.com/leonmrbonnie/)<br>
 ⭐ This repository if you found it useful!
 
 ---
